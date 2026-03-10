@@ -1,4 +1,4 @@
-https://meta-analyzer.com/
+https://meta-analyzer.com/projects/
 
 https://uk.linkedin.com/in/leszeksliwko
 
